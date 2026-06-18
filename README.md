@@ -1,4 +1,4 @@
-# Hi there! 👋 I'm Khrztpr (you can call me zxc)
+# Hi there! 👋 I'm Khrztpr (you can call me z)
 
 Welcome to my GitHub profile!
 
